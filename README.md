@@ -1,0 +1,1 @@
+Ссылка на CV [здесь](https://Nadia3090.github.io/rsschool-cv/cv/)
